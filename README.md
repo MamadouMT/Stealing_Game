@@ -1,1 +1,1 @@
-Overall the game was fun to made the biggest challenge was designing the world overall fun to do!
+What went will is implementing the mechanic of the standard Roblox Tycoon. What didn't go so well was figuring out what mechanic I wanted to use. Challenges I faced was the overall level design. Something I would change is tweak the environment and find other ways to make money. Overall the game was fun to made the biggest challenge was designing the world overall fun to do!
